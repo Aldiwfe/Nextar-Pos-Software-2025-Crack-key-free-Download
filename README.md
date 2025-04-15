@@ -1,0 +1,1 @@
+# Nextar-Pos-Software-2025-Crack-key-free-Download
